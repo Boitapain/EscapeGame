@@ -1,1 +1,1 @@
-tu n'es pas invité à la fête du pipi caca
+Ce datapack est installé de base sur la Map Basilica.
